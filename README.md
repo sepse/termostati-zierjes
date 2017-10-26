@@ -1,0 +1,1 @@
+# termostati-zierjes
